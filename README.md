@@ -1,37 +1,45 @@
 # canadacasino
-Casino review
-<h2>Casino Cruise Reviews</h2>
+Casino Heroes review
+<h1>Casino Heroes Reviews</h1>
 
-<p>Casino Cruise is a great paypal&nbsp;<a href="https://greatcasino.com.au/paypal-casino/" target="_blank">https://greatcasino.com.au/paypal-casino/</a> online casino. Casino Cruise offers a wide selection of more than 1,300 different games, divided into five different categories. First of all, it is a live casino. Here you will find popular games such as baccarat, roulette and (various variants) blackjack, which are controlled by a real dealer at a real table. You can always see what is happening in the game via a live video link.</p>
+<p>Casino Heroes&nbsp;<a href="https://greatcasinocanada.com/" target="_blank">https://greatcasinocanada.com/</a> offers a unique approach that allows you to get to know the world of online casinos. You go on an adventure based on your personal avatar. Unlock new slots, defeat bosses for extra winnings and spins, and develop your digital character by combining casino excitement with the adventures of a computer game.</p>
 
-<p>In addition, there is an online roulette game where you play virtual roulette. The game is controlled not by the dealer, but by the computer. It&#39;s the same with slots, where you can choose slots from the best developers.</p>
+<p>Casino Heroes is more than just a new approach with slots from all major developers, various roulette and table games, and a full-fledged live casino. With Casino Heroes, you play the best games in a fun and exciting way.</p>
 
-<h2>Bonuses</h2>
-
-<p>The welcome bonus for Casino Cruise is 1000 euros plus 200 free spins. You earn this 1000 euros on four different deposits. You will get the best match for your first Deposit, a maximum of 200 euros, if you Deposit the same amount yourself. The second Deposit will give you 200 euros if you Deposit 400 euros yourself, and the third and fourth deposits will bring you 300 euros of game money for every 1200 euros you Deposit. With your first Deposit, you will get 20 free spins per day for 10 days.</p>
+<p>At Casino Heroes, you can get up to 100 euros as a free game credit plus 50 free spins with a Deposit of 5 euros or more.<br />
+Registered players automatically save the so-called &quot;rubies&quot;, the virtual currency of Casino Heroes. For every 75 euros you get 1 ruby. Rubies can be exchanged for free spins or other rewards in the Ruby Store.</p>
 
 <h2>Bonus conditions</h2>
 
-<p>Always read the small print before requesting a welcome bonus. It&#39;s the same with Casino Cruise. The bonus amount depends on a fairly large wagering of 40 times. This means that you have to bet 40 times the amount equal to the bonus to get the bonus money. If you claim the entire bonus of 1000 euros, this means that you will have to make a big bet to be able to withdraw money at the end.</p>
+<p>Both the bonus money and any winnings will remain on your account balance until you meet the wagering requirements. An amount equal to the bonus amount must be wagered 40 times before the player can withdraw the bonus and win. This requirement must be met within 30 days.</p>
 
-<p>In addition, the requirements must be met within 14 days, otherwise the entire bonus will expire. In addition, the player is not entitled to receive the bonus at all if the first deposits are made through Neteller and Skrill. So pay attention to this.</p>
+<p>Let&#39;s say you received a bonus of 50 euros, then you need to play 2000 euros for 30 days. If you do not do so within this time period, the casino reserves the right to cancel both the bonus amount and any random winnings. And that, of course, would be a shame.</p>
 
-<p>Free spins are available for 24 hours and can only be used on NetEnt&#39;s Starburst slot machine. After 24 hours, you will lose all spins that you didn&#39;t bet on.</p>
+<p>Rubies won for winning a boss fight expire after 60 days. Rubies from treasure bags, virtual treasure chests, expire in 30 days. Points accumulated by depositing money into your account do not expire.</p>
 
 <h2>Selection of games</h2>
 
-<p>Casino Cruise offers a variety of games, from slot machines, table games, and jackpot games to live gaming platforms. Games are offered by excellent software developers: NetEnt, Microgaming, Play &#39; N Go, Quickspin, Red Tiger Gaming and Nyx Interactive. Live games from Evolution Gaming, the current market leader in live games.</p>
+<p>Players can choose from over 850 slot machines and (live) table games. Popular slots such as Starburst, Book of Dead and Bonanza are at the top of the page. The selection of Board games is not very extensive, but there are good options such as Rainforest Magic Bingo and Let it Ride. Surprisingly, this online casino offers more varieties of scratch cards than table games.</p>
 
-<p>The choice of Board games is also very diverse. This casino is especially recommended for roulette lovers. The site offers more than 20 different roulette options, including Roulette Pro and Cloud Quest Roulette.</p>
+<p>We find the live casino section the most impressive: with over 100 slots from Evolution Gaming and NetEnt Casino Heroes offers one of the most extensive live gaming sections we&#39;ve ever come across. As a result, this selection is also very diverse, with unique options such as Super Sic Bo and Speed Roulette. Four &quot;Money Wheel&quot; games are available: Crazy Time, Monopoly Live, Mega Ball, and Dream Catcher. These live games are based on&quot; game shows &quot; on television. Central to these games is a large spinning wheel and a charismatic host. Nice for a change.</p>
 
-<p>When it comes to video poker, the selection is also very extensive: more than 50 games are offered, from classic Caribbean stud poker to the lesser-known red Dog variety.</p>
+<h2>Go on an adventure</h2>
 
-<h2>Permissions</h2>
+<p>The most unique aspect of the Casino Heroes website is the adventure journey that players can take. By clicking on the &quot;Maps&quot; icon, you enter a virtual world with many Islands and regions to conquer, defeating the &quot; boss &quot;in the so-called&quot;boss battle&quot;. Progress is tracked on the progress bar.</p>
 
-<p>Casino Cruise is licensed in Malta and the UK. The fact that the casino is regulated by both the Malta gambling Authority and the well-established and strict UK gambling Commission gives us many reasons to say that this casino is trustworthy. In addition, all games on the site are also created by reliable software developers.</p>
+<h2>Blitz mode</h2>
+
+<p>A unique game mode that players can enable is the Blitz variant. The chances of winning are the same, but the spins on the slot spin 6 times faster than usual. We think this is a good option for an experienced casino player.</p>
+
+<h2>Resolution</h2>
+
+<p>Casino Heroes is licensed in Malta, which is one of the strictest permissions to protect players. This way, you always play Casino Heroes safely and fairly, and you are also sure that all your data is stored properly.</p>
 
 <h2>Client service</h2>
 
-<p>You can contact the casino in several ways, 24 hours a day, 7 days a week. Casino Cruise can be contacted by email, phone, or live chat. Live chat is available throughout the day. You can contact us by phone on different phone lines for different rules. They also use a so-called callback service if you need it.</p>
+<p>The live chat feature is available from 9: 00 to midnight. If you need help at any other time, you can always send an email. Live chat is of course the best option for a few hours, because you can talk directly to a customer service representative.</p>
 
-<p>We recommend that you always check the FAQ section before contacting support. Here are all frequently asked questions with detailed answers. Most likely, your question will be answered here.</p>
+<h2>Depositing and withdrawing money</h2>
+
+<p>You can Deposit money to your credit at Casino Heroes in several ways: using a credit card, Neteller, Trustly, Skrill, ecoPayz, and Zimpler. The minimum Deposit amount is 10 euros, for which you also receive a welcome bonus (10 euros). To withdraw money, use the same method that you used to pay or Deposit money to your Bank account.</p>
+
